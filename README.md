@@ -1,0 +1,1 @@
+it is basically now only front end with some functionality i am not added bacckend writh now so for thi sory i f you give me a chance i willmake soon i am on a trip write now thats why it takes lot pf time 
